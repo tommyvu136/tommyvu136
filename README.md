@@ -1,4 +1,4 @@
-# Hi there, I'm Vu Hai Anh 👋
+# Hi there, I'm Hai Anh 👋
 
 ## About Me
 
